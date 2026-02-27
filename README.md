@@ -1,6 +1,6 @@
 # Olá, eu sou o João Lucas! 👋
 
-### 👨‍💻 Estudante de Informática | Apaixonado por Ciências
+### 👨‍💻 Estudante de Informática |Ciências
 
 Atualmente, sou aluno do curso **Técnico em Informática Integrado ao Ensino Médio** no **IFTO - Campus Formoso do Araguaia**. Tenho 15 anos e estou explorando o mundo da tecnologia e das ciências para entender como as coisas funcionam.
 
