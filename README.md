@@ -18,7 +18,7 @@ Não quero falar meu objetivo de vida.
 
 ###  No que estou trabalhando
 
-Utilizo meus estudos pra estudar para vestibulares, mas atualmente não sou tão consistente, pois além de estudar eu sei, até demais, procrastinar.
+Utilizo meus estudos pra focar em vestibulares, mas atualmente não sou tão consistente, pois além de estudar eu sei, até demais, procrastinar.
 
 
 
